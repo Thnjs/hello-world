@@ -1,2 +1,2 @@
 # hello-world
-hello world is the name hehehehe
+wake up to reality, this isnt virtual reality
